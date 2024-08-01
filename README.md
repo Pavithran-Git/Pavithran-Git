@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Pavithran
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning MERN
+- 💞️ I’m looking to collaborate on good hearts
+- 📫 How to reach me by HI!
+- 😄 Pronouns: Adios Amigo
+- ⚡ Fun fact: Be hapy 
